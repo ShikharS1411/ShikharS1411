@@ -1,2 +1,2 @@
 ### Hi there 👋
-Nothing special,just a CP nerd 🗿
+Nothing special,neither specialist:_( ,just a CP nerd XD🗿
